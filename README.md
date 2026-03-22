@@ -6,14 +6,14 @@
 ---
 
 ### . . . 
-**vibe** | **safe space** | **vile games**
+**lol** | **nothing** | **hhereee**
 
 *doing things. or not.* 🥀
 
 ---
 
 ### 🕸️ 
-[**instagram**](https://instagram.com/YOUR_INSTAGRAM) • [**discord**](https://discord.com/YOUR_INVITE) • [**email**](mailto:YOUR_EMAIL)
+[**instagram**](https://instagram.com/hqrits) • ]
 
 ---
 
