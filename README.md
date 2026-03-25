@@ -8,7 +8,7 @@
 ### . . . 
 **lol** | **nothing** | **hhereee**
 
-*aku takkan mau* 🥀
+*nihilism* 🥀
 
 ---
 
