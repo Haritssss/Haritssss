@@ -8,15 +8,15 @@
 ### . . . 
 **lol** | **nothing** | **hhereee**
 
-*doing things. or not.* 🥀
+*aku takkan mau* 🥀
 
 ---
 
 ### 🕸️ 
-[**instagram**](https://instagram.com/hqrits) • ]
+[**instagram**](https://instagram.com/hqrits) •
 
 ---
 
-<img src="https://raw.githubusercontent.com/catppuccin/catppuccin/main/assets/footers/gray0_unframed.png" width="100%" />
+
 
 </div>
